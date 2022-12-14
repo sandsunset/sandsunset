@@ -1,1 +1,1 @@
-# 👋 sejoon(sandsunset)
+# 👋 sejoon
